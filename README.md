@@ -7,3 +7,5 @@
 4.drive it by not holding the steering
 
 5.drive it by closing ur eyes..
+
+6.drive by not using pedal
