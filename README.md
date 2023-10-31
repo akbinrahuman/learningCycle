@@ -8,4 +8,4 @@
 
 5.drive it by closing ur eyes..
 
-6.drive by not using pedal
+6.drive by using pedal
