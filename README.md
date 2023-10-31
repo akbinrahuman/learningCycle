@@ -1,2 +1,3 @@
-# learningCycle
-This repository is to develop a knowledge about cycle learning
+1.Buy a new cycle
+
+2.fix the daily time to learn
